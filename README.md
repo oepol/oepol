@@ -1,4 +1,5 @@
 - 👋 Hi, I’m @oepol
-- Birthday in 3 months
-
+- Birthday in 4 months
+- currently inactive
+  
 
